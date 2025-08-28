@@ -22,6 +22,7 @@ This is a personal learning repository.
 ## Contact
 
 You can reach me on GitHub or email me at @jyotiayan47@gmail.com.
+Linkedin - www.linkedin.com/in/ayan-jyoti-b312b223a
 
 ---
 
